@@ -1,2 +1,10 @@
 # team-tools-guide
-Soft Skills tp5 team part 
+
+Soft Skills tp5 team part
+
+
+
+nice
+
+
+
